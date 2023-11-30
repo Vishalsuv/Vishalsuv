@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Vishalsuv/ README.md
+- 👋 Hi, I’m @Vishal/ README.md
 
